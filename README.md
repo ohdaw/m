@@ -1,1 +1,1 @@
-# media.storage
+🔗 https://m.shame.rip/
